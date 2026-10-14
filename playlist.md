@@ -100,3 +100,6 @@ Playlist list mulai my favorite gwe
 98. フレデリック (Frederic) - オドループ (Oddloop)
 99. Creepy Nuts - 堕天 (DATEN)
 100. Creepy Nuts - オトノケ (Otonoke)
+
+
+that's my playlist
